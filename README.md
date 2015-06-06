@@ -1,2 +1,0 @@
-# pondering
-My blog
